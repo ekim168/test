@@ -20,3 +20,5 @@ Creating a new repository trial run (created 8/30/22)
 `Have an amazing rest of your day!`
 
 `Be brave, strong, and kind`
+
+**You are where you're supposed to be**
